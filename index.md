@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+This blog is about trying to figure out how life, people and the Universe are. Don't take it too serious though. I don't.
